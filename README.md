@@ -1,4 +1,19 @@
-## Hi there 👋
+# blebleble
+![con](https://media1.tenor.com/m/Xsam7Anxl4IAAAAd/connor-detroit-become-human-android.gif) 
+
+solely purpose for PonyTown only. 
+
+          Linem  🐏  16 y/o
+          masc pronouns! 
+          aroace spectrum
+      c+h is highly encouraged!
+
+  **💬 DBH, Hannibal, Mads Mikkelsen movie, Scrutinized/WTTG III, Kindergarten game, PHM/IRONLUNG, etc..**
+
+*I tend to be straightforward or  shy first meeting, please tell me if my straightforwardness make you uncomfortable! It's usually comes out because of curiosity, though I tend to know where to draw the line.* 
+
+    
+![con](https://media1.tenor.com/m/ZFdKDAb4busAAAAC/connor-detroit-become-human.gif) 
 
 <!--
 **puplinem/puplinem** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
