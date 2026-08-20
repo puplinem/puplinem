@@ -8,9 +8,9 @@ solely purpose for PonyTown only.
           aroace spectrum
       c+h is highly encouraged!
 
-  **💬 DBH, Hannibal, Mads Mikkelsen movie, Scrutinized/WTTG III, Kindergarten game, PHM/IRONLUNG, etc..**
+  <div align="center">💬 DBH, Hannibal, Mads Mikkelsen movie, Scrutinized/WTTG III, Kindergarten game, PHM/IRONLUNG, etc..</div>
 
-*I tend to be straightforward or  shy first meeting, please tell me if my straightforwardness make you uncomfortable! It's usually comes out because of curiosity, though I tend to know where to draw the line.* 
+<div align="center">I tend to be straightforward or  shy first meeting, please tell me if my straightforwardness make you uncomfortable! It's usually comes out because of curiosity, though I tend to know where to draw the line.</div> 
 
     
 ![con](https://media1.tenor.com/m/ZFdKDAb4busAAAAC/connor-detroit-become-human.gif) 
