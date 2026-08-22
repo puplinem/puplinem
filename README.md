@@ -1,7 +1,7 @@
 
 ![con](https://media1.tenor.com/m/Xsam7Anxl4IAAAAd/connor-detroit-become-human-android.gif) 
 
-solely purpose for PonyTown only. 
+Solely purpose for PonyTown only. 
 
           Linem  🐏  16 y/o
           masc pronouns! 
@@ -12,6 +12,8 @@ solely purpose for PonyTown only.
 
 
 <div align="center">Pretty shy first meeting, please bare with me!:< Connor irl btw rou is my dada hank</div> 
+
+-----
 
     
 ![con](https://media1.tenor.com/m/ZFdKDAb4busAAAAC/connor-detroit-become-human.gif) 
