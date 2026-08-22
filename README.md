@@ -1,4 +1,4 @@
-# blebleble
+
 ![con](https://media1.tenor.com/m/Xsam7Anxl4IAAAAd/connor-detroit-become-human-android.gif) 
 
 solely purpose for PonyTown only. 
@@ -9,6 +9,7 @@ solely purpose for PonyTown only.
       c+h is highly encouraged!
 
   <div align="center">💬 DBH, Hannibal, Mads Mikkelsen movie, Scrutinized/WTTG III, Kindergarten game, PHM/IRONLUNG, etc..</div>
+
 
 <div align="center">I tend to be straightforward or  shy first meeting, please tell me if my straightforwardness make you uncomfortable! It's usually comes out because of curiosity, though I tend to know where to draw the line.</div> 
 
