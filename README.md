@@ -11,7 +11,7 @@ solely purpose for PonyTown only.
   <div align="center">💬 DBH, Hannibal, Mads Mikkelsen movie, Scrutinized/WTTG III, Kindergarten game, PHM/IRONLUNG, etc..</div>
 
 
-<div align="center">I tend to be straightforward or  shy first meeting, please tell me if my straightforwardness make you uncomfortable! It's usually comes out because of curiosity, though I tend to know where to draw the line.</div> 
+<div align="center">Pretty shy first meeting, please bare with me!:< Connor irl btw rou is my dada hank</div> 
 
     
 ![con](https://media1.tenor.com/m/ZFdKDAb4busAAAAC/connor-detroit-become-human.gif) 
