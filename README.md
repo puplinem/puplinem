@@ -11,7 +11,7 @@ Solely purpose for PonyTown only.
   <div align="center">💬 DBH, Hannibal, Mads Mikkelsen movie, Scrutinized/WTTG III, Kindergarten game, PHM/IRONLUNG, etc..</div>
 
 
-<div align="center">Pretty shy first meeting, please bare with me!:< Connor irl btw rou is my dada hank</div> 
+<div align="center">umm pretty jolly😭and straightforward if same interest😭 hashtag socializing</div> 
 
 -----
 
